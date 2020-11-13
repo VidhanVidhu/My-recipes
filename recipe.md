@@ -1,0 +1,1 @@
+Heat ghee/oil in a wide mouthed flat pan over medium flame to deep fry the jalebis. Flip 2-3 times (or as needed) using a tong to deep fry them evenly. Deep fry them until light golden and crispy. Remove it from the oil using a tong and immediately put it into the warm sugar syrup.
